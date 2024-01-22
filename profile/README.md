@@ -1,0 +1,6 @@
+![Slide 16_9 - 122](https://github.com/MOONSHOT-Team/.github/assets/75068759/d2b2664e-032e-4d81-9589-4e40da20818f)
+![Slide 16_9 - 137](https://github.com/MOONSHOT-Team/.github/assets/75068759/6b9e7eaf-dd33-4f58-b95a-2af6a56235f8)
+![Slide 16_9 - 136](https://github.com/MOONSHOT-Team/.github/assets/75068759/c0473560-d16d-4ab5-9d74-ef886da143e0)
+![Slide 16_9 - 138](https://github.com/MOONSHOT-Team/.github/assets/75068759/4474cbfa-6889-4584-803c-9b0673089ea4)
+![Slide 16_9 - 139](https://github.com/MOONSHOT-Team/.github/assets/75068759/d439897e-a578-430f-9b49-f216ca2a8173)
+![Slide 16_9 - 123](https://github.com/MOONSHOT-Team/.github/assets/75068759/adcc1f62-32a0-4160-a54e-c924f88ad6ba)
